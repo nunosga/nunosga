@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @nunosga
+- 👀 I’m interested in playing guitar and music production
